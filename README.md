@@ -1,1 +1,1 @@
-# omakase brain
+# omaka$e brain
